@@ -1,5 +1,5 @@
 <h2 align="center">
-    ──「 ᴀɴᴏɴ ダ ᴍᴜsɪᴄ 」──
+    ──「 BXY ダ ROBOT 」──
 </h2>
 
 <p align="center">
